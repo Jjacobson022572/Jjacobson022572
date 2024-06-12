@@ -2,7 +2,8 @@
 - 👀 I’m interested in .global payments..
 - 🌱 I’m currently learning .investing..
 - 💞️ I’m looking to collaborate on .ESG..
-- 📫 How to reach me .+1503-987-8292..
+- 📫 How to reach me .+19713817228
+- 
 - 😄 or jjacobson022572@gmail.com...
 - ⚡ Fun fact: i was born naked...
 
