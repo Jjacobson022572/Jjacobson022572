@@ -2,10 +2,10 @@
 - 👀 I’m interested in .global payments..
 - 🌱 I’m currently learning .investing..
 - 💞️ I’m looking to collaborate on .ESG..
-- 📫 How to reach me .+19713817228
+- 📫 How to reach me .+19713807699
 - 
 - 😄 or jjacobson022572@gmail.com...
-- ⚡ Fun fact: i was born naked...
+- ⚡ Fun fact..
 
 <!---
 Jjacobson022572/Jjacobson022572 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
