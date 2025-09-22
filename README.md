@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Jjacobson022572
-- 👀 I’m interested in .global payments..
-- 🌱 I’m currently learning .investing..
-- 💞️ I’m looking to collaborate on .ESG..
-- 📫 How to reach me .+1503-380-8229
+- 👋Hello World
+-
+- 
+- 💞️ 
+- 📫 How to reach me .+1503-7108507
 - 
 - 😄 or jjacobson022572@gmail.com...
 - ⚡ Fun fact..
